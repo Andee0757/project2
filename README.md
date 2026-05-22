@@ -1,1 +1,4 @@
 # new project
+my worst day has passed i have learned a lot from this in a way that if i happen to be in the same situation i will handle it totally different way i have my reason to give my laptop to them but the worst part is what i did in the mean time this shows that how stupid i am, i foolish i am.
+Definitely this is not gonna happen again but i still doubt myself when i will find myself in new situation but still similar in some aspects what will i do.
+I have decided that i will take a pen and a paper and just write so that i can think myself clear and through, this is a fucking promise to myself and i better not break it for the sake of everything. 
